@@ -15,7 +15,7 @@
 커피 한 잔의 여유가 사람들을 연결하고 커뮤니티를 만드는 힘에 사로잡혔습니다.☕☕☕☕☕
 커피 한 잔의 눈을 통해 세상이 어떻게 변하기 시작하는지 놀랍습니다. ☕☕☕☕☕
 
-# https://6c8mfepiwhejdyjnvn5wjw.on.drv.tw/www.seoulcafe/www.seoulcafe/
+https://xingzuophoenixxingzuophoenix.on.drv.tw/서울카페/--main/
 
 하루를 시작하세요
 
